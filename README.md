@@ -1,1 +1,1 @@
-# Isinya masih kosong 
+# Isinya masih tetap kosong 
